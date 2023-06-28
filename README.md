@@ -10,9 +10,6 @@ Insights inferred :
 1. I need to control my expenses like shopping and EMI.
 2. I need to focus on savings.
 3. I need to focus on save/spend according to my earning.
-  
-5. 
-6. 
 
 
 
